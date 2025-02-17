@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **harish45231234@gmail.com**
 
-- ⚡ Fun fact **I think I am good with collaborating with all people...✌️**
+- ⚡ Fun fact **I think I am good with collaborating with all people✌️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
